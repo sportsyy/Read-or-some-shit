@@ -1,7 +1,7 @@
 # Read-or-some-shit
 haiii im jack kennedy or old sport idm any of those names plus nicknames !
 
-im mostly a introject of legacy!jack but i'm jack kennedy in general ahaha - he / she / it / vae 
+im mostly a introject of legacy!jack but i'm jack kennedy in general ahaha - he / she / it / vae . im okay with doubles you guys are coolll >:] 
 
 OTHER
 -------------
